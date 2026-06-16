@@ -21,7 +21,7 @@
 ## 📫 Kontakt
  
 - **Email:** Silver.Varusk@gmail.com
-- **LinkedIn:** [[linkedin.com/in/anna-mets](https://linkedin.com/in/anna-mets](https://www.linkedin.com/in/silver-v-663480151/))
+- **LinkedIn:** [[[linkedin.com/in/anna-mets](https://linkedin.com/in/anna-mets](https://www.linkedin.com/in/silver-v-663480151)](https://www.linkedin.com/in/silver-v-663480151/))
  
 ---
  
